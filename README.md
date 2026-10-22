@@ -1,0 +1,2 @@
+# Tecnology-Ai
+Tecnology Sechol
